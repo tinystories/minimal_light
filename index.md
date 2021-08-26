@@ -13,8 +13,8 @@ I'm a member of my local writing group, [West Lothian Writers](https://www.westl
 
 ## Flash Fiction
 
-- **Stopped Clock**, *101 Words*, Nov 2020 [[Read online](https://101words.org/stopped-clock/)]
-- **The Fairy Ring**, *101 Words*, Feb 2020 [[Read online](https://101words.org/the-fairy-ring/)]
-- **The Winter Cabin**, Scottish Book Trust 50 Word Fiction Competition Winner, Dec 2019 [[Read online](https://www.scottishbooktrust.com/50-word-fiction/december-2019-winners)]
-- **Monster Repellent**, *Friday Flash Fiction*, Nov 2019 [[Read online](https://www.fridayflashfiction.com/100-word-stories/monster-repellent-by-emma-wilson)]
-- **Untitled (Story 841)**, *Nanoism*, Jun 2019 [[Read online](https://nanoism.net/stories/841/)]
+- **Stopped Clock**, *101 Words*, Nov 2020 [[Read](https://101words.org/stopped-clock/)]
+- **The Fairy Ring**, *101 Words*, Feb 2020 [[Read](https://101words.org/the-fairy-ring/)]
+- **The Winter Cabin**, *Scottish Book Trust 50 Word Fiction Competition Winner*, Dec 2019 [[Read](https://www.scottishbooktrust.com/50-word-fiction/december-2019-winners)]
+- **Monster Repellent**, *Friday Flash Fiction*, Nov 2019 [[Read](https://www.fridayflashfiction.com/100-word-stories/monster-repellent-by-emma-wilson)]
+- **Untitled (Story 841)**, *Nanoism*, Jun 2019 [[Read](https://nanoism.net/stories/841/)]
